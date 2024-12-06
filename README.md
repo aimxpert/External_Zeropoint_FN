@@ -1,5 +1,5 @@
 #### (  mezze aka dex.70 )
-#### External Leak because he sent me rat with another source so I will share the sources !!! ( if you ears about Zeropoint from EPVP dont buy it will smell of virus )
+#### External Leak because he sent me rat with another source so I will share the new sources !!! ( if you ears about Zeropoint from EPVP dont buy it will smell of virus )
 ##### ( using medal tv for overlay )
 ##### update and working now update 2024-11-19 ( just add ur own driver )
 ##### old screenshoot ( but same menu )
